@@ -10,4 +10,3 @@ Meu nome é Marcos
   @marcosfe07
 
 ![](https://media1.tenor.com/m/BZaWjKzYBLQAAAAd/racoon-raccoon.gif)
-https://media1.tenor.com/m/BZaWjKzYBLQAAAAd/racoon-raccoon.gif
